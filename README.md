@@ -80,4 +80,4 @@ COM-US는 <b>`농인 부모와 청인 자녀(CODA) 간 정서적 유대 강화�
   
 <br>
 <img src="https://github.com/user-attachments/assets/3bce8174-9683-4f22-84b1-9f3d53222ca5" width="800">
-](https://github.com/COMUS-2025/.github/blob/main/profile/README.md)
+
